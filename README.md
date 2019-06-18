@@ -1,1 +1,0 @@
-# smithnic.github.io
